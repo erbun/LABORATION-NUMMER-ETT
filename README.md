@@ -1,2 +1,2 @@
 # LABORATION-NUMMER-ETT
-@_@
+Inte mer... snälllaaaa
